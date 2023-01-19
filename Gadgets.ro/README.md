@@ -1,1 +1,1 @@
-Gadget.ro
+Gadgets.ro
